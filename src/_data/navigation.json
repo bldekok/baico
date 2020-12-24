@@ -11,9 +11,9 @@
       "external": false
     },
     {
-      "external": true,
       "text": "Op Instagram",
-      "url": "www.instagram.com/baico.nl"
+      "url": "https://www.instagram.com/baico.nl",
+      "external": true
     }
   ]
 }
