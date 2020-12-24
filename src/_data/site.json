@@ -7,7 +7,7 @@
   "authorHandle": "@baico.nl",
   "authorName": "Baico",
   "enableThirdPartyComments": false,
-  "paymentPointer": "$ilp.uphold.com/MggmnFEyQqhk",
+  "paymentPointer": "-",
   "faviconPath": "/images/favicon.png",
   "maxPostsPerPage": 5
 }
