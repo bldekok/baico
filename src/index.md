@@ -1,12 +1,14 @@
 ---
 layout: home
-title: An awesome starter kit for Eleventy
+title: Een huisdier adopteren?
 postsHeading: Latest posts
 archiveButtonText: See all posts
-metaDesc: 'Hylia is a lightweight Eleventy starter kit to help you to create your own blog or personal website.'
+metaDesc: 'Overweeg je een hond of kat uit het asiel te adopteren? Ik help je graag op weg!'
 socialImage: ''
 ---
 
-Hylia is a lightweight [Eleventy](https://11ty.io) starter kit with [Netlify CMS](https://www.netlifycms.org/) pre-configured, so that you can one-click install a progressive, accessible blog in minutes. It also gives you a well organised starting point to extend yourself. It’s by [Andy Bell](https://twitter.com/hankchizljaw) and [friends](https://github.com/aarongustafson/hylia/graphs/contributors).
+Overweeg je 'n hond of kat uit het asiel adopteren? Tof!
 
-Get started now by [deploying Hylia to Netlify.](https://app.netlify.com/start/deploy?repository=https://github.com/hankchizljaw/hylia&stack=cms)
+Er bestaan rondom huisdieren in dierenasiels veel vragen, vooroordelen en aannames. Verwarrend wel. In mijn vele jaren als vrijwilliger bij een asiel leerde ik een hoop over asieldieren. 
+
+Ik help je daarom graag op weg!
