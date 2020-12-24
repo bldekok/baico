@@ -9,6 +9,11 @@
       "text": "Example Contact Page",
       "url": "/contact",
       "external": false
+    },
+    {
+      "external": true,
+      "text": "Op Instagram",
+      "url": "www.instagram.com/baico.nl"
     }
   ]
 }
