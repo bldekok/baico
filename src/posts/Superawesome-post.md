@@ -1,10 +1,9 @@
 ---
 title: Superawesome post
-date: '2020-12-24'
+date: 2020-12-24
 ---
-
 **Superawesome eerste post**
 
-> Bruce is een groot leider
+> Bruce een middelmatige leider, hij is.
 
 *Yoda (2020)*
