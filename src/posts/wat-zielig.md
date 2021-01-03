@@ -10,9 +10,9 @@ socialImage: /images/asielkat-pleuntje.jpg
 date: 2021-01-03T11:03:14.290Z
 tags:
   - Dierenasiels
-  - honden
-  - katten
-  - adopteren
+  - Honden
+  - Katten
+  - Adopteren
 ---
 "Vind je het niet zielig dat al die honden en katten na een tijdje in het asiel worden ingeslapen?" Als ik een euro had gekregen voor iedere keer dat iemand dit vroeg, poeh, ik zou geen dag meer hoeven werken. Sinds ik vanaf 2011 vrijwilliger ben bij een dierenasiel, kreeg ik deze vraag vaak. Om dit vooroordeel maar gelijk de wereld uit te helpen: het idee dat 'langzitters' worden ingeslapen, is (in ieder geval in Nederland) een fabeltje.
 
