@@ -6,6 +6,7 @@ metaTitle: "\"Zit 'ie in het asiel? Wat zielig!\" - Waarom dieren in het asiel
 metaDesc: '"Vind je het niet zielig dat al die honden en katten na een tijdje in
   het asiel worden ingeslapen?" Nee. Dat het beeld bestaat dat dieren onder de
   hoede van asiels slecht af zijn, dát vind ik zielig.'
+socialImage: /images/asielkat-pleuntje.jpg
 date: 2021-01-03T11:03:14.290Z
 tags:
   - Dierenasiels
