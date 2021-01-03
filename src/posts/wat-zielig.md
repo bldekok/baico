@@ -22,7 +22,7 @@ tags:
 
 In werkelijkheid krijgen de meeste honden en katten in 'mijn' asiel snel een nieuw thuis. En huisdieren die langer in het asiel zitten, krijgen simpewelg langer aandacht en liefde totdat ook zij worden geadopteerd. Ik herinner me nog poes Ghana, die minder opviel tussen alle katten. Ze was zwart-wit (een rode kat is bijvoorbeeld populairder), vrij op zichzelf en niet heel knuffelig. Maar er was niks 'mis' met haar. Na een jaartje in het asiel vond zij alsnog haar match. Soms duurt het gewoon even langer. 
 
-![Cypers-witte asielkat Pleuntje ligt lekker op een kleedje](/images/asielkat-pleuntje.jpg "Asielkat Pleuntje vermaakt zich zelf in het asiel gedurende haar herstel")
+![Cypers-witte asielkat Pleuntje ligt lekker op een kleedje](/images/asielkat-pleuntje.jpg "Asielkat Pleuntje vermaakt zich wel in het asiel gedurende haar herstel")
 
 Of recenter: Pleuntje, een echt knuffelkatje dat werd gevonden met een gebroken heup. Dierenasiel 't Julialaantje betaalde flinke dierenartsrekeningen (geholpen door gulle donateurs!) om haar er weer bovenop te krijgen. Pleuntje zat maandenlang in het asiel om te herstellen - gisteren werd ze geadopteerd. Dierenasiels gunnen katten als Ghana en Pleuntje die tijd, steun en liefde. Dit verdient meer waardering!
 
