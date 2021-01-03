@@ -17,9 +17,17 @@ tags:
 
 > "...we zijn geprogrammeerd om dierenasiels te koppelen aan ellende."
 
+
+
+## Hoe zit het dan wel?
+
 In werkelijkheid krijgen de meeste honden en katten in 'mijn' asiel snel een nieuw thuis. En huisdieren die langer in het asiel zitten, krijgen simpewelg langer aandacht en liefde totdat ook zij worden geadopteerd. Ik herinner me nog poes Ghana, die minder opviel tussen alle katten. Ze was zwart-wit (een rode kat is bijvoorbeeld populairder), vrij op zichzelf en niet heel knuffelig. Maar er was niks 'mis' met haar. Na een jaartje in het asiel vond zij alsnog haar match. Soms duurt het gewoon even langer. 
 
+
+
 Of recenter: Pleuntje, een echt knuffelkatje dat werd gevonden met een gebroken heup. Dierenasiel 't Julialaantje betaalde flinke dierenartsrekeningen (geholpen door gulle donateurs!) om haar er weer bovenop te krijgen. Pleuntje zat maandenlang in het asiel om te herstellen - gisteren werd ze geadopteerd. Dierenasiels gunnen katten als Ghana en Pleuntje die tijd, steun en liefde. Dit verdient meer waardering!
+
+## Ingebakken vooroordelen
 
 Ondertussen blijven hardnekkige vooroordelen bestaan. In 2015 dacht [41% van de Nederlanders](https://www.dierenbescherming.nl/wat-wij-doen/actueel/nieuws/nieuws-overzicht/geefommij-dierenbescherming-zet-asieldieren-in-het-zonnetje) dat er sowieso iets mis is met honden en katten in het asiel. Dat beeld klopt niet, maar heel gek is de gedachte niet. Mogelijk ken je het beeld al van kinds af aan. In Lady en de Vagebond huilen honden in het asiel. [Letterlijk.](https://www.youtube.com/watch?v=RRM_PWjhV_U) [In Tom & Jerry](https://youtu.be/9zTXjwYenRI?t=30) blaffen asielhonden erop los en laten ze hun tanden flink zien. En organisaties die opkomen voor verwaarloosde dieren tonen in spotjes vooral de bekende beelden [van sneue, zielige dieren achter tralies](https://www.youtube.com/watch?v=lVEsK6WalrE). Dit soort goede doelen doen goed werk, maar je kunt je afvragen of dit soort campagnes het beeld van 'mislukte' dieren in asiels niet vooral versterken. Het resultaat is dat we zijn geprogrammeerd om dierenasiels te koppelen aan ellende.
 
