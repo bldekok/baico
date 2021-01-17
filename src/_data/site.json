@@ -6,7 +6,7 @@
   "authorEmail": "bldekok@gmail.com",
   "authorHandle": "@baico.nl",
   "authorName": "Baico",
-  "enableThirdPartyComments": false,
+  "enableThirdPartyComments": true,
   "paymentPointer": "-",
   "faviconPath": "/images/favicon.png",
   "maxPostsPerPage": 5
