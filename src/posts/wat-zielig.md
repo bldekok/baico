@@ -16,7 +16,7 @@ tags:
 ---
 "Vind je het niet zielig dat al die honden en katten na een tijdje in het asiel worden ingeslapen?" Als ik een euro had gekregen voor iedere keer dat iemand dit vroeg, poeh, ik zou geen dag meer hoeven werken. 
 
-Sinds ik vanaf 2011 vrijwilliger ben bij een dierenasiel, kreeg ik deze vraag vaak. Om dit vooroordeel maar gelijk de wereld uit te helpen: het idee dat 'langzitters' worden ingeslapen, is (in ieder geval in Nederland) een fabeltje.
+Sinds ik vanaf 2011 vrijwilliger ben bij een dierenasiel, kreeg ik deze vraag vaak. Om dit vooroordeel maar gelijk de wereld uit te helpen: het idee dat 'langzitters' worden ingeslapen, is (in ieder geval in Nederland) een fabeltje. Het laat wel zien wat voor hardnekkige vooroordelen er rondom asiels en asieldieren bestaan.
 
 > "...we zijn geprogrammeerd om dierenasiels te koppelen aan ellende."
 
@@ -40,6 +40,6 @@ En organisaties die opkomen voor verwaarloosde dieren tonen in spotjes vooral de
 
 Begrijp me niet verkeerd: dierenasiels vangen zeker ook katten en honden op die moeilijk(er) plaatsbaar zijn. Niet elke hond of kat is ‘makkelijk’ en ze vereisen een bepaald type (ervaren) baasje. En de gevolgen van dierenmishandeling die organisaties tonen in reclames moeten we heel serieus nemen. Maar dit zijn - gelukkig - excessen. Alle dieren die lekker geknuffeld worden en snel een thuis vinden, hebben geen 'nieuwswaarde'. Dat is het merendeel. 
 
-Als vrijwilliger zie ik hoe fantastische mensen zich dag in dag uit voor dierenwelzijn inzetten. Bijna tien jaar later krijg ik echter nog steeds de "vind je het niet zielig" vraag. Nee. Dat vind ik niet zielig. Een écht thuis is altijd beter dan het asiel, maar het asiel is een goed tijdelijk thuis totdat er een goede match is gevonden met een nieuw baasje. Dat het beeld bestaat dat dieren onder de hoede van asiels slecht af zijn, dát vind ik zielig. 
+Als vrijwilliger zie ik hoe fantastische mensen zich dag in dag uit voor dierenwelzijn inzetten. Bijna tien jaar later krijg ik echter nog steeds de vraag "of ik het niet zielig vind dat die diertjes in het asiel zitten". Nee. Dat vind ik niet zielig. Een écht thuis is altijd beter dan het asiel, maar het asiel is een goed tijdelijk thuis totdat er een goede match is gevonden met een nieuw baasje. Dat het beeld bestaat dat dieren onder de hoede van asiels slecht af zijn, dát vind ik zielig. 
 
 Dat beeld is onterecht en werkt het herplaatsen van dieren alleen maar tegen. Ik ben klaar met dit verkeerde beeld en verkeerde vooroordelen. Ik ben op een missie om zoveel mogelijk huisdieren te helpen. Onderdeel daarvan is het negatieve beeld van asiels en asieldieren bij te sturen en foutieve vooroordelen de wereld uit te helpen. Het feit dat jij het einde van dit artikel hebt bereikt, doet daar hopelijk een kleine eerste bijdrage aan. Fijn om je aan boord te hebben!
