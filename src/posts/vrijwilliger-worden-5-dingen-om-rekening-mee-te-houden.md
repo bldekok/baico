@@ -4,6 +4,9 @@ title: Vrijwilliger worden? 5 dingen om rekening mee te houden!
 metaTitle: Vrijwilliger in het asiel worden? 5 dingen om rekening mee te houden!
 metaDesc: Vrijwilliger in het asiel worden? 5 dingen om rekening mee te houden!
 date: 2021-01-31T15:37:51.961Z
+tags:
+  - Dierenasiels
+  - vrijwilligerswerk
 ---
 Denk je erover om vrijwilliger in een asiel te worden? Goed idee! Ik beschouw het als één van de betere beslissingen in mijn leven. Het vrijwilligerswerk geeft mij nu al 9 jaar elke week ontzettend veel voldoening en energie. Aanrader! Wel merkte ik in al die jaren dat sommige dingen als een verrassing komen voor nieuwe vrijwilligers. Vandaar deze lijst met dingen waar je rekening moet houden als je vrijwilliger in een dierenasiel wordt. Waarschuwing: ik ga nu iets te lang praten over poep.
 
